@@ -1,0 +1,1 @@
+# 12-480-thermodynamics-for-geoscientists-fall-2006_45eab640dbed46f9b65efb61d115e58e
